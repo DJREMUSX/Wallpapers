@@ -1,9 +1,9 @@
 # DJR Wallpapers
                    -- PACK #1 --
 
-Wallpapers Pack ( Vector )
+> Wallpapers Pack ( Vector )
 
-CipflixTV -_> Cip1, Cip2 etc...
+> CipflixTV -_> Cip1, Cip2 etc...
 
 
 
