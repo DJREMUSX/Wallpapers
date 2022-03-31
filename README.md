@@ -1,5 +1,5 @@
 # DJR Wallpapers
-                                                                        -- PACK #1 --
+                   -- PACK #1 --
 
 Wallpapers Pack ( Vector )
 
