@@ -1,9 +1,12 @@
 # DJR Wallpapers
-                   -- PACK #1 --
+
 
 > Wallpapers Pack ( Vector )
 
 > CipflixTV -_> Cip1, Cip2 etc...
+
+Join my [Discord](https://djremus.xyz/discord).
+
 
 
 
